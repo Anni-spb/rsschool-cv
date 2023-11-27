@@ -1,10 +1,10 @@
 # ANNA IGNATOVA
 
-====================
 
 ## Contacts
 
 Telegram @Anniel_spb
+
 Discord anni-spb
 
 ********************
